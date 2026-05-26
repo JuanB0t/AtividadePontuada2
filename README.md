@@ -1,2 +1,0 @@
-# AtividadePontuada2
-Atividade
